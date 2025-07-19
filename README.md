@@ -5,7 +5,7 @@
 -  I’m interested in art and videogames, I also enjoy reading.
 -  I’m currently Studying in Argentina, FCENyQ.
 -  I’m looking to collaborate on anything my skills could be useful.
--  How to reach me: voosycervoose@gmail.com
+-  How to reach me: valentinomende@gmail.com
 -  Pronouns: he/him
 
 <!---
